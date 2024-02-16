@@ -2,4 +2,3 @@
 - 👀 I’m interested in Linguistics and world peace
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: https://www.buymeacoffee.com/fatma0828/
